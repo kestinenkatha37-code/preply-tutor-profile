@@ -1,14 +1,14 @@
 # Online English Tutor – Preply
 
 ## Teaching Experience
-- Beginner & intermediate learners
+- Beginner and intermediate learners
 - Conversational English
 - Grammar and pronunciation
 
-## Lesson Style
+## Teaching Style
 - Friendly
-- Student-focused
-- Speaking practice
+- Student-centered
+- Confidence building
 
-## Platform
-- Preply
+📫 Contact: kestinenkatha37@gmail.com
+
